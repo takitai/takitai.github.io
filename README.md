@@ -1,2 +1,0 @@
-# takitai.github.io
-hp
